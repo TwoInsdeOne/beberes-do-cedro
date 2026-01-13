@@ -12,7 +12,7 @@ Fica após o Açude do Cedro, após o restaurante Peixada Imperial, a trilha com
 
 ### Coordenadas
 
-5° 02′ 19″ S, 39° 00′ 33″ O 
+4°58'25"S 39°03'33"O
 
 
 
