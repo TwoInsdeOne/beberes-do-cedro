@@ -13,7 +13,7 @@ O santuário tornou-se ponto de romaria de fiéis cearenses e de outros estados.
 
 ### Coordenadas
 
-5° 02′ 19″ S, 39° 00′ 33″ O 
+5°02′19″S 39°00′33″O 
 
 
 
