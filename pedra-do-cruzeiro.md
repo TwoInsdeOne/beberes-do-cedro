@@ -10,6 +10,9 @@ Ela fica localizada no centro da cidade de Quixadá e é visível a partir de pr
 
 Em média, a duração da súbida é cerca de 30 minutos. Ao chegar no topo é possível ver toda a cidade, uma das melhores vistas.
 
+### Coordenadas
+
+4°57'58"S 39°00'50"O
 
 
 [Voltar a página inicial](README.md)
