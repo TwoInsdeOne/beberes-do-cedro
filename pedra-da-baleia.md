@@ -13,7 +13,7 @@ Partindo-se do abrigo de montanha de Quixadá, na rotatória, pegue a 1ª saída
 
 ### Coordenadas
 
--5.020067340925886,-38.98120880126953
+5°01'02"S 38°58'41"O
 
 
 
